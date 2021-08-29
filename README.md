@@ -1,0 +1,5 @@
+- 👋 Hi, I’m bacot
+- 👀 I’m interested in kepo
+- 🌱 I’m currently learning deface
+- 💞️ I’m looking to collaborate with my self
+- 📫 How to reach me : delok en aypi edresku lah
